@@ -1,0 +1,1 @@
+Faqsi is the capital of [[Nambria]]
