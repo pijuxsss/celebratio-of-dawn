@@ -19,16 +19,28 @@
 - [[Küutar]] made a successful deception check and took the healing potions pretending to be [[Denis]]'s friend.
 - We found [[Katherine]] who we healed and fixed a toy. tho thank us she gave [[Lootah]] a trinket
 - After rest we set out to the [[Black banner]] hideout
+- ambushed [[Black banner]] goblin scouts
+- after killing them we made them seem they are sleeping
+- found 10gp in the goblin tent
+- inside tent there was a box with a black shard inside
+- Bringing the shards together they make a crackiling sound
+- got a goblin sized cloak
+- after wandering around found [[Denis]] who escaped from [[Black banner]]
+- [[Denis]] pointed toward the cave opening.
 - 
 **Session ended at:**
-
+- at the entrance of [[Black banner]] cave
 
 **Loot acquired:**
 - a black shard
 - 2 healing potions
+- 10gp
+- goblin sized [[Black banner]] cloak
+- 4 [[Black banner]] badges
 - 
 **Quests completed:**
 - completed [[Guarding at Celebration Dawn]] quest and received a bonus of 10gp
 **Quests received:**
-
+- retrieve black shards stolen by [[Black banner]]
+- 
 **Non complete Quests:**

@@ -11,8 +11,11 @@
 
 Is a believer of [[God of trickery]]
 
-
+I need mage hand. So my duplicate can hold stuff :D
 **Money:**
++60gp(starting money)
++110 gold
++10gp
 
 **Equipment:**
 
