@@ -1,0 +1,1 @@
+Found a portrait of him in a [[Black banner]] base

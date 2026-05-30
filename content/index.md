@@ -1,3 +1,7 @@
+# Plot points
+- there is a painting of [[Denis]] in [[Black banner]] cave
+- [[pink mustache bartended]] has [[deepthroat the swalower]]
+- participation in comedy show
 # session notes
 - [[Session 0]]
 - [[Session 1]]
@@ -20,4 +24,3 @@
 - [[Nambria]]
 - [[Portunis]]
 - [[The vilager vilage]]
-- heyyy

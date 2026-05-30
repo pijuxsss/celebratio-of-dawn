@@ -17,8 +17,9 @@
 - The guard said there is a magic crafsman in [[Faqsi]]
 - After that we found an abandoned stall selling potions for 40gp each. A person next to the stall said that his friend [[Denis]] asked to him to guard the potions till [[Denis]] friend arrived.
 - [[Küutar]] made a successful deception check and took the healing potions pretending to be [[Denis]]'s friend.
-- We found [[Katherine]] who we healed and fixed a toy. tho thank us she gave [[Lootah]] a trinket
+- We found [[Katherine]] who we healed and fixed a toy. tho thank us she gave [[Lootah]] a trinket (unicorn)
 - After rest we set out to the [[Black banner]] hideout
+- fought tricock creatures 
 - ambushed [[Black banner]] goblin scouts
 - after killing them we made them seem they are sleeping
 - found 10gp in the goblin tent
